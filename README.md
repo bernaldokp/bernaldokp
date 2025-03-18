@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming, sports, & gaming
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on any projects.
-- 📫 How to reach me? Just email me in "bernaldokpoutlook.com" or "09498955452" call me
+- 📫 How to reach me? Just email me in "bernaldokpoutlook.com"
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can talk while sleeping :>
 
